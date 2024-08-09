@@ -1,4 +1,11 @@
 ## Hi there 👋
+-Atualmente estou trabalhando com linga de comonicação 📖
+-Atualmente estou aprendendo computação 💻
+-Estou procurando colaborar em jogos 🎮
+-Estou procurando ajuda com linguaguem de computação mais dificeis 🥯
+-Pergunte-me sobre jogo que irei ajudar 👼
+-Pronomes: sun 🕊️
+-Curiosidade: jogos faz bem 
 
 <!--
 **kimsunmiis/kimsunmiis** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
