@@ -1,9 +1,9 @@
 ## 안녕하세요👋
-me chamo thais
+me chamo thais 🍪
  
-tenho 15 anos 
+tenho 15 anos 💃
 
-faço aniversario 01/12
+faço aniversario 01/12 🍬
 
 viciada em kpop 
 
