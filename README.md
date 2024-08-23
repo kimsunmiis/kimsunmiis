@@ -1,4 +1,4 @@
-## Hi there 👋
+## 안녕하세요👋
 -Atualmente estou trabalhando com linga de comonicação 📖
 
 -Atualmente estou aprendendo computação 💻
