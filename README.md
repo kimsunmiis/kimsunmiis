@@ -1,17 +1,13 @@
 ## 안녕하세요👋
--Atualmente estou trabalhando com linga de comonicação 📖
+me chamo thais
+ 
+tenho 15 anos 
 
--Atualmente estou aprendendo computação 💻
+faço aniversario 01/12
 
--Estou procurando colaborar em jogos 🎮
+viciada em kpop 
 
--Estou procurando ajuda com linguaguem de computação mais dificeis 🥯
-
--Pergunte-me sobre jogo que irei ajudar 👼
-
--Pronomes: sun 🕊️
-
--Curiosidade: jogos faz bem 👽
+quero ser uma idol 
 
 ![.](https://media1.tenor.com/m/amqnt8tVpF0AAAAd/jung-ahyeon-baemon-ahyeon.gif) 
 ![.](https://media1.tenor.com/m/RZ5ZCJ8DySwAAAAd/felix-skz.gif)
